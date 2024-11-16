@@ -1,4 +1,4 @@
-![Banner](https://i.ibb.co/HpzXHdS/ferenc-almasi-ayjnm-G4o-UX4-unsplash.jpg)
+![Banner](https://i.ibb.co.com/NK13YKj/Black-and-Yellow-Web-Developer-Linked-In-Banner.png)
 
 # Hello, I'm Sayem 👋
 
